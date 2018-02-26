@@ -8,7 +8,7 @@
 
 ## How did the conversation go for you? What was easy about the conversation? What was more difficult? 
 
-* My partner and I got along very well, so this conversation was not particularly uncomfortable.  We had polar-opposite working styles, but we had more than one prior conversation about this.  We were both aware of our differences and we both compromised to the extent needed in order to be successful.  The biggest key to our success was constant communication.  The only difficult part for me was providing constructive coaching feedback.  I take criticism very naturally, but it has always been more difficult to dish it out. 
+* My partner and I got along very well, so this conversation was not particularly uncomfortable.  We had polar-opposite working styles, but we had more than one prior conversation about this.  We also frequently reflected among each other throughout the project, so nothing really came as a surprise.  We were both aware of our differences and we both compromised to the extent needed in order to be successful.  The biggest key to our success was constant communication.  The only difficult part for me was providing constructive coaching feedback.  I take criticism very naturally, but it has always been more difficult to dish it out. 
 
 ## What principles of feedback did you use in the conversation?
 * Appreciation, Coaching, Empathy, Non-Violent Communication
